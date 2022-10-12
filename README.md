@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mia-ship-it-glitch
+- 👀 I’m interested in anime
+- 🌱 I’m currently learning english
+- 💞️ I’m looking to collaborate on math
+- 📫 How to reach me my email vanderhulstcad@apsfalcons.net
+- 
