@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mia-ship-it-glitch
+- 👋 Hi, I’m Mia
 - 👀 I’m interested in anime
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on math
